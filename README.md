@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @DeChandelle
+- 👋 Hi, I’m Rachelle Chandler Fertig
 - 👀 I’m interested in working in data science to answer growing gap questions in medical/mental health trends
 - 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me rachellefertig@gmail.com or text 813-785-9214 include (DSP) to help me prioritize your text
